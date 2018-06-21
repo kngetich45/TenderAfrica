@@ -8,7 +8,7 @@ As we pride ourselves in the ability to connect enterprises to business opportun
 
 Screenshots
 
-More Click Here Https://www.yinkenya.co.ke
+More Click Here Https://tenderafrica.net
 
 ![capture](https://user-images.githubusercontent.com/18662989/38167581-09d529ac-3540-11e8-9d59-b4f74e5430d8.PNG)
 ![cc](https://user-images.githubusercontent.com/18662989/38167582-0a1cfa0c-3540-11e8-987a-13d898a9fced.PNG)
